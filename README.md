@@ -1,0 +1,2 @@
+# MySelfBot
+Nothing, malas ah.
